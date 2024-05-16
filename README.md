@@ -10,3 +10,7 @@ Malgré son caractère enjoué, Jinouga n'a pas un tempérament autoritaire. Il 
 Toutefois, Jinouga n'est pas exempt de défauts. Ses amis se plaisent à dire qu'il a quelques "skill issues". Cela signifie qu'il peut parfois manquer de compétence ou d'habileté dans certaines situations, ce qui le rend encore plus attachant. Il n'hésite jamais à admettre ses erreurs et à demander de l'aide, ce qui montre une humilité et une volonté d'apprendre rare chez beaucoup de gens. Cette transparence et cette honnêteté renforcent les liens avec ceux qui l'entourent.
 
 En résumé, Jinouga est une personne unique et authentique. Son rire contagieux, son approche non autoritaire des relations et ses lacunes occasionnelles en compétences font de lui quelqu'un de profondément humain et attachant. Que ce soit à travers ses mystères ou ses imperfections, il laisse une empreinte indélébile sur ceux qui ont la chance de le connaître.
+
+
+https://github.com/Amauryeen/jinou.gay/assets/142788354/bdde486c-2d4b-4c34-94f6-d1951ef4ba53
+

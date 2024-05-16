@@ -10,4 +10,4 @@ Toutefois, Jinouga n'est pas exempt de défauts. Ses amis se plaisent à dire qu
 
 En résumé, Jinouga est une personne unique et authentique. Son rire contagieux, son approche non autoritaire des relations et ses lacunes occasionnelles en compétences font de lui quelqu'un de profondément humain et attachant. Que ce soit à travers ses mystères ou ses imperfections, il laisse une empreinte indélébile sur ceux qui ont la chance de le connaître.
 
-![EPtFrMAXsAAr9Bg](https://github.com/Amauryeen/jinou.gay/assets/32741920/14267f9c-8131-4363-bc68-c851db77fb24)
+[jinou femboy](https://jinou.gay/EPtFrMAXsAAr9Bg.png)

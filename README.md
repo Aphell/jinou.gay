@@ -1,4 +1,4 @@
-# jinou.gay
+# jinou.gay [(modifier la page)](https://github.com/Amauryeen/jinou.gay/blob/main/README.md)
 
 Jinouga est une personne aux multiples facettes, toujours prêt à apporter une touche de gaieté autour de lui. Ouvertement gay et fier de l'être, il incarne la joie de vivre et l'acceptation de soi. Ses amis disent souvent qu'il est une véritable bouffée d'air frais dans leurs vies, toujours souriant et prêt à rire. Son rire communicatif et sa capacité à voir le bon côté des choses font de lui un compagnon de choix pour quiconque recherche un peu de lumière dans son quotidien.
 
